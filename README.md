@@ -1,6 +1,6 @@
 # 奈云VPN官网地址
 
-最新地址：[v2ny.com](https://www.naiun43582.cfd/#/register?code=poyMbif7)
+最新地址：[v2ny.com](https://www.naiun2.top/#/register?code=poyMbif7)
 
 ## 奈云VPN介绍
 
