@@ -1,6 +1,6 @@
 # 奈云VPN官网地址
 
-最新地址：[v2ny.com](https://www.v2ny.de/#/register?code=poyMbif7)
+最新地址：[v2ny.com](https://www.32487623796.autos/#/register?code=poyMbif7)
 
 ## 奈云VPN介绍
 
