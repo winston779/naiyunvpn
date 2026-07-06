@@ -1,6 +1,6 @@
 # 奈云VPN官网地址
 
-最新地址：[v2ny.com](https://www.nyaff.cc?path=register&code=sAK0hZ3G)
+最新地址：[v2ny.com](https://naiun.org/#/register?code=sAK0hZ3G)
 
 ## 奈云VPN介绍
 
